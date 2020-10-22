@@ -1,1 +1,0 @@
-# ansgyqja.github.io
